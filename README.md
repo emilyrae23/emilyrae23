@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @emilyrae23
+- 👋 Hi, I’m Emily Lawther.
 - 👀 I’m interested in 2D games, RPGs, platformers, and silly little narratives that don't make any sense but enchant you nonetheless.
 - 🌱 I’m currently learning how to code, against my will.
 - 📫 How to reach me: elawther@knights.ucf.edu
